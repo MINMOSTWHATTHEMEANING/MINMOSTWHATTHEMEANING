@@ -9,7 +9,7 @@
 📫 How to reach me:
 
 * **YouTube:** [http://www.youtube.com/@MINMOSTWHATTHEMEANING](http://www.youtube.com/@MINMOSTWHATTHEMEANING) (Watch my devlogs and gameplay videos!)
-* **LinkedIn:** [Pongsagorn Pongsuwagorn](Your LinkedIn Profile Link)
+* **LinkedIn:** [Pongsagorn Pongsuwagorn]
 * **Itch.io:** [https://minmostwhatthemeaning.itch.io](https://minmostwhatthemeaning.itch.io) (Play my games!)
 * **Patreon:** [patreon.com/MINMOSTWHATTHEMEANING](patreon.com/MINMOSTWHATTHEMEANING) (Support my indie game development journey!)
 
